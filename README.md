@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @balramshukla003
+- 👋 Hi, I’m Balram Shukla
 - 👀 I’m interested in the world of AI and Coding
 - 🌱 I’m currently learning "Genrative AI" and moving towards "DATA SCIENCE"
 - 💞 I’m looking to collaborate on projects with companies
