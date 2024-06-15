@@ -2,6 +2,6 @@
 - 👀 I’m interested in the world of AI and Coding
 - 🌱 I’m currently learning "Web Development" and moving towards "Software Development"
 - 💞 I’m looking to collaborate on projects with companies
-- 📫 How to reach me connect with me on Insta- Mr.balramshukla
+- 📫 How to reach me connect with me on Whatsapp +919026050563
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: "Dont Think About Me You Will Feel Better"
