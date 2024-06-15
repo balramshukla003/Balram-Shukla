@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Balram Shukla
 - 👀 I’m interested in the world of AI and Coding
-- 🌱 I’m currently learning "Genrative AI" and moving towards "DATA SCIENCE"
+- 🌱 I’m currently learning "Web Development" and moving towards "Software Development"
 - 💞 I’m looking to collaborate on projects with companies
 - 📫 How to reach me connect with me on Insta- Mr.balramshukla
 - 😄 Pronouns: He/Him
